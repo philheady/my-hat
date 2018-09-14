@@ -10,3 +10,5 @@ now I want smiley faces.. lol
 
 UPCOMING
 if I can... I wish to incorporate the WiFi...  still learning..
+
+https://www.youtube.com/watch?v=HVJ9EOyWF-s
